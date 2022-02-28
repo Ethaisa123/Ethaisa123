@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Ethaisa123
 - 👀 I’m interested in sleep
 - 🌱 I’m currently learning how to sleep
-- 💞️ I’m looking to collaborate on mattress
+- 💞️ I’m looking to collaborate on pillow making
 - 📫 How to reach me, dont im trying to sleep
 
 <!---
